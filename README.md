@@ -1,1 +1,4 @@
-# choose
+# choose (2017)
+This project, now with some sort of retrospective appears to me as the perfect manifestation of a existential teen crises. It was realised in a french highschool at a time where students needed to choose what they wanted to do after senior year. Around that time I had realised that people weren’t confortable with them selves, with what they wanted to do. So I created these sheets of paper, wrote what I wanted people to know, I guess that I wanted to reassure them, maybe to reassure myself too. 
+
+These pictures were designed to be but up on one of the main hallways in my highschool. After a couple of days I realised that people were writing in these “messages”, that intrigued me a lot. When I created this I was thinking only about the visual aspect of it, lets say like art on a museum wall. But when I saw that people were not only interested, but also participated I realised something. Art is not meant to be hung on a wall, or a least what I do, it is meant to be transformed by who sees it. 
